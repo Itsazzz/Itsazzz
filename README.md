@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Itsazzz
 - 👀 I’m interested in CYBERSECURITY | ELECTRONICS AND COMMUNICATION
-- 🌱 I’m currently learning CYBERSECURITY CORE
+- 🌱 I’m currently learning CYBERSECURITY 
 - 📫 How to reach me https://www.linkedin.com/in/mohamed-azharudeen-70522a322/
 - 😄 Pronouns: HE
 
